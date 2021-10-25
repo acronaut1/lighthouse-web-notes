@@ -1,2 +1,2 @@
-# [Oskar]'s Notes
+# [Oskar✨]'s Notes
 ###### Work in Progress..
